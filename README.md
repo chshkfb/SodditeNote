@@ -1,1 +1,1 @@
-# Take notes about something useful
+# Take notes about something usefull
